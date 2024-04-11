@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dhavalcsv
+- 👋 Hi, I’m Dhaval
 
 "Tell me and I forget, teach me and I may remember, involve me and I learn." - Xun Kuang |
 My personal goal in life is to achieve a certain level of excellence that will help me become a more resilient analyst and ignore my own limitations. 
